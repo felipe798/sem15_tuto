@@ -1,46 +1,53 @@
-# 📝 Tarea Semana 1️⃣5️⃣: "Lo que me marcó y me transformó" 🔚🌟  
+# 📝 Tarea Semana 1️⃣5️⃣: "Rompe la cadena del odio" 🔗✊  
 
-## ✍️ Parte 1: Lo que más me marcó 💡  
+## ✍️ Parte 1: Lo que más me impactó  
 
-### 💬 **Clase o actividad impactante**  
-La sesión sobre **el miedo al fracaso** 🚧💔 revolucionó mi perspectiva. Cuando analizamos cómo el temor a fallar puede paralizarnos más que el fracaso mismo, entendí que **los errores son escalones necesarios para crecer**.  
+### 💬 **Sesión transformadora**  
+El taller **"Rompe la cadena del odio"** 💔➡️❤️‍🩹 me hizo ver cómo los prejuicios se transmiten generacionalmente. Cuando analizamos casos reales de discriminación, entendí que **el cambio comienza reconociendo nuestros propios sesgos**.  
 
-### 🔄 **Cambio significativo**  
-Al inicio del ciclo:  
-- ❌ **Evitaba tomar riesgos** por miedo al qué dirán  
-- 😰 **Posponía tareas** por perfeccionismo  
+### 🔄 **Mi transformación**  
+Antes:  
+- 🤐 Callaba cuando escuchaba comentarios ofensivos  
+- 🏷️ Juzgaba sin conocer historias completas  
+
 Ahora:  
-- ✅ **Acepto desafíos** aunque no tenga garantías de éxito  
-- 💪 **Veo los intentos fallidos** como aprendizaje valioso  
+- 🗣️ **Alzo la voz** contra discursos de odio  
+- 👂 Practico la **escucha activa** para entender diferencias  
 
 ### 🔍 **Autodescubrimiento**  
-- 🎭 **Mi crítica interna** era más dura que cualquier fracaso externo  
-- 💥 Descubrí que **soy más resiliente** de lo que creía  
-- 🌱 Aprendí a reemplazar "No puedo" por **"Voy a intentarlo"**  
+- 🔎 Encontré **microracismos** en mi forma de pensar  
+- 💞 Descubrí mi poder para **sanar heridas** con empatía  
+- ✊ Aprendí que **neutralidad = complicidad**  
 
 ---  
 
-## 🧱 Parte 2: Muro de gratitud simbólico ❤️  
+## 🧱 Muro de reconciliación ❤️‍🩹  
 
-### 👤 **A una persona que te inspiró**  
-**Gracias, Profe Teobaldo**, por compartir tus propias experiencias. 
+### 👤 **A quien me enseñó a perdonar**  
+**Gracias, abuelo**, por contarme cómo superaste tus rencores históricos. Tu ejemplo me mostró que **el perdón libera más al que lo da**.  
 
-### 🙏 **A ti mismo/a**  
+### 🌟 **A mi mejor versión**  
 **Gracias, yo**, por:  
-- 📉 No rendirte después de ese proyecto fallido  
-- 🔄 Haber convertido cada error en una lección  
+- 🧠 Cuestionar esos pensamientos heredados  
+- 🤲 Dar segundas oportunidades  
 
-### ✨ **A la vida o al proceso**  
-**Gracias, universo**, por:  
-- ⏳ Darme el tiempo necesario para aprender  
-- 🧩 Mostrarme que cada caída encaja en un plan mayor  
+### 🌎 **A la humanidad**  
+**Gracias, sociedad**, por:  
+- 📚 Permitirme aprender de nuestros errores  
+- 🕊️ Demostrar que la paz es posible  
 
-### 🌱 **A alguien que necesita ánimo**  
-**Ánimo, compañeros**: Recuerden que **Thomas Edison falló 1,000 veces antes de inventar la bombilla**. Sus fracasos no los definen.  
-
----  
-
+### 💌 **Mensaje a alguien herido**  
+**Querido migrante**: Tu dolor no es invisible. Juntos podemos construir **un mundo donde nadie sea "el otro"**.  
 
 ---  
 
-> "El fracaso no es lo contrario al éxito, es parte de él" - Arianna Huffington  
+### ⏳ **Mi evolución contra el odio**  
+| Hito | Emoción | Cambio concreto |  
+|------|---------|-----------------|  
+| Identifiqué mis prejuicios | 😳 Vergüenza | Dejé de usar lenguaje excluyente |  
+| Intervine en un acto discriminatorio | 💪 Empoderamiento | Aprendí técnicas de mediación |  
+| Organicé círculo de diálogo | 🕯️ Esperanza | Creé espacios seguros en mi comunidad |  
+
+---  
+
+> "Nadie nace odiando. El odio se aprende. Y si se puede aprender a odiar, también se puede enseñar a amar" - Nelson Mandela  
