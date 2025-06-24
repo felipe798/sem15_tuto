@@ -23,7 +23,7 @@ Ahora:
 ## 🧱 Parte 2: Muro de gratitud simbólico ❤️  
 
 ### 👤 **A una persona que te inspiró**  
-**Gracias, Profe Teobaldo**, por compartir tus propios fracasos profesionales. Ver cómo los superaste me enseñó que **el éxito viene después de muchos intentos**.  
+**Gracias, Profe Teobaldo**, por compartir tus propias experiencias. Ver cómo los superaste me enseñó que **el éxito viene después de muchos intentos**.  
 
 ### 🙏 **A ti mismo/a**  
 **Gracias, yo**, por:  
