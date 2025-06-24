@@ -38,4 +38,3 @@ Esta tutoría me mostró que tengo **una gran capacidad para escuchar y empatiza
 | 15     | 🎉 Alegría  | Ciclo cerrado con aprendizajes valiosos |  
 
 ---  
-*¿Incluir carta de agradecimiento? Opcional pero poderoso ✉️🌷.*  
