@@ -40,13 +40,6 @@ Ahora:
 
 ---  
 
-### ⏳ **Línea del tiempo emocional**  
-| Semana | Emoción 🎭 | Evento clave | Aprendizaje |  
-|--------|------------|--------------|-------------|  
-| 1 | 😨 Miedo | Primer trabajo grupal | El perfeccionismo me paralizaba |  
-| 5 | 😓 Frustración | Nota baja en informe | Fallar no me hace un fracasado |  
-| 10 | 🧘‍♂️ Aceptación | Retroalimentación difícil | Las críticas ayudan a mejorar |  
-| 15 | 🚀 Confianza | Presentación final | El valor está en el intento |  
 
 ---  
 
